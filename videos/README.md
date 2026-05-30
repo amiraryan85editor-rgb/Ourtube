@@ -8,4 +8,5 @@
 - 4 - 🎬 [زن-روز-فصل-2-قسمت-19-Zan-e-Rooz](https://github.com/amiraryan85editor-rgb/Ourtube/tree/main/videos/%D8%B2%D9%86-%D8%B1%D9%88%D8%B2-%D9%81%D8%B5%D9%84-2-%D9%82%D8%B3%D9%85%D8%AA-19-Zan-e-Rooz)
 - 5 - 🎬 [زن-روز-فصل-2-قسمت-20-Zan-e-Rooz](https://github.com/amiraryan85editor-rgb/Ourtube/tree/main/videos/%D8%B2%D9%86-%D8%B1%D9%88%D8%B2-%D9%81%D8%B5%D9%84-2-%D9%82%D8%B3%D9%85%D8%AA-20-Zan-e-Rooz)
 - 6 - 🎬 [زن-روز-فصل-2-قسمت-22-Zan-e-Rooz](https://github.com/amiraryan85editor-rgb/Ourtube/tree/main/videos/%D8%B2%D9%86-%D8%B1%D9%88%D8%B2-%D9%81%D8%B5%D9%84-2-%D9%82%D8%B3%D9%85%D8%AA-22-Zan-e-Rooz)
-- 7 - 🎬 [زن-روز-فصل-2-قسمت-25-Zan-e-Rooz](https://github.com/amiraryan85editor-rgb/Ourtube/tree/main/videos/%D8%B2%D9%86-%D8%B1%D9%88%D8%B2-%D9%81%D8%B5%D9%84-2-%D9%82%D8%B3%D9%85%D8%AA-25-Zan-e-Rooz)
+- 7 - 🎬 [زن-روز-فصل-2-قسمت-23-Zan-e-Rooz](https://github.com/amiraryan85editor-rgb/Ourtube/tree/main/videos/%D8%B2%D9%86-%D8%B1%D9%88%D8%B2-%D9%81%D8%B5%D9%84-2-%D9%82%D8%B3%D9%85%D8%AA-23-Zan-e-Rooz)
+- 8 - 🎬 [زن-روز-فصل-2-قسمت-25-Zan-e-Rooz](https://github.com/amiraryan85editor-rgb/Ourtube/tree/main/videos/%D8%B2%D9%86-%D8%B1%D9%88%D8%B2-%D9%81%D8%B5%D9%84-2-%D9%82%D8%B3%D9%85%D8%AA-25-Zan-e-Rooz)
